@@ -1,1 +1,0 @@
-# ICT-PROJECT-1
